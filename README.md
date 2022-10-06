@@ -1,1 +1,1 @@
-# hain-cennkin-cop-botlari
+HAYAT YETERİNCE ACIMASIZ SEN NİE ACIMION CENK ?
